@@ -22,3 +22,6 @@ I love Chrisopher Nolan movies!!!
 
 ### Arslan Aftab
 Guess who's back, back again...
+
+### Can Kerem Akbulut
+What's up people?
